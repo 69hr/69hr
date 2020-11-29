@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-
+<img align="center" src="https://github-readme-stats.vercel.app/api/?username=69hr&count_private=true&include_all_commits" />
 
 - 🔭 I’m currently working on: 66
 - 🌱 I’m currently learning: java shit
