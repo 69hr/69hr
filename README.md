@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on: only yoink stuff
 - 🤔 I’m looking for help with: code stuff
 - 💬 Ask me about: CRYSTALPVP
-- 📫 How to reach me: 69hr#2161
+- 📫 How to reach me: 69hr#4342
 - 😄 Pronouns: she/her/it
 - ⚡ Fun fact: im a pvp god
 
